@@ -42,4 +42,7 @@ More info and free registration via graduates@digitalcareerinstitute.org.
 
 | col 3 is      | right-aligned | $1600 |
 
+**Hiiiii** 
+
+
 
