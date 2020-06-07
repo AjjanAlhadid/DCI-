@@ -44,3 +44,6 @@ More info and free registration via graduates@digitalcareerinstitute.org.
 
 **_Hallo_**
 **Zusammen**
+**_Hallo_**
+**Zusammen**
+
